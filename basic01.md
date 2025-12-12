@@ -4,6 +4,114 @@
 
 ---
 
+1. 口元・指の具体的な動作 (Action)
+物理的なポーズのバリエーションです。噛む強さや指の位置で印象が変わります。
+
+基本動作
+
+下唇を噛む (Biting lower lip / Lip biting)
+
+指をくわえる (Finger in mouth / Mouth hold)
+
+指先を唇に押し当てる (Pressing finger to lips)
+
+唇を指でなぞる (Tracing lips / Touching lips)
+
+親指を噛む (Biting thumb)
+
+爪を噛む（あどけなさ・不安げ） (Biting nails)
+
+小悪魔的なアレンジ
+
+「シーッ」のポーズ (Shushing / Finger on lips / Shhh)
+
+指で唇を少し引っ張る (Pulling lip with finger)
+
+舌を少し出して指に触れる (Licking finger / Tongue out)
+
+手袋や袖を噛んで引っ張る (Biting glove / Biting sleeve)
+
+小指だけを口元に当てる（上品・媚び） (Pinky on lips)
+
+2. 表情・目つき (Expression & Eyes)
+「小悪魔感」は口元だけでなく、目で決まります。
+
+視線
+
+上目遣い (Looking up / Upturned eyes)
+
+流し目 (Sideways glance)
+
+挑発的な視線 (Provocative look)
+
+見下ろすような視線（メスガキ風） (Looking down on / Scornful eyes)
+
+ハート目（誇張表現） (Heart-shaped pupils)
+
+顔のニュアンス
+
+ニヤリと笑う (Smirk / Grin)
+
+いたずらっぽい笑顔 (Mischievous smile)
+
+頬を赤らめる（照れ・興奮） (Blush / Flustered)
+
+困り眉（あざとい困り顔） (Troubled eyebrows)
+
+猫口 (Cat mouth / :3)
+
+3. 雰囲気・形容詞 (Vibe & Atmosphere)
+全体的な空気感を指定するワードです。
+
+小悪魔・セクシー寄り
+
+あざとい (Calculated cuteness / Cunning cute)
+
+魅惑的・誘惑的 (Seductive / Tempting)
+
+色気のある (Sensual / Sultry)
+
+コケティッシュ (Coquettish)
+
+淫靡 (Lewd / Suggestive) ※強めの表現が必要な場合
+
+あどけなさ・可愛い寄り
+
+無防備 (Defenseless / Unguarded)
+
+子供っぽい (Childish / Innocence)
+
+甘えん坊 (Spoiled / Clingy)
+
+きょとんとした (Blank stare / Dazed)
+
+4. シチュエーション・装飾 (Context)
+ポーズをより際立たせるための補助要素です。
+
+アイテム・服装
+
+萌え袖 (Oversized sleeves / Long sleeves covering hands)
+
+ネイルを見せる (Showing nail art / Painted nails)
+
+飴やチョコレートを舐める (Licking lollipop / Eating chocolate)
+
+チョーカー (Choker)
+
+オフショルダー (Off-shoulder)
+
+構図
+
+顔のアップ (Close-up face)
+
+彼シャツ（大きめのシャツ） (Boyfriend shirt)
+
+ベッドに寝転んで (Lying on bed)
+
+鏡越し (In the mirror)
+
+---
+
 ### 1. 立ちポーズ・全身系（ボディラインの強調）
 
 身体全体のシルエットを見せるための基本となるポージングです。
